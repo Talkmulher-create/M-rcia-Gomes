@@ -47,9 +47,12 @@ Saúde mental, NR-01; Inteligência Emocional, bem-estar alimentação saudável
 
 Equipe: Nutricionista; Educador Físico, Enfermeira Obstetrícia, contador, psicóloga, psicanalista, músicoterapia e arteterapia com pintura.
 
+Artigo Científico:
+https://revista-conexao.vercel.app/47d8f31b-e668-46e2-8a27-0408ecc3b2f0
+
 🏛️ Atuação Institucional
 
-- Pesquisadora em Gestão de Pessoas e Cultura Organizacional, empreendedo feminino, PUC)  
+- Pesquisadora em Gestão de Pessoas e Cultura Organizacional, empreendedorismo feminino, PUC)  
 - Coordenadora de programas de desenvolvimento humano e inovação social  sustentável. 
 - Coordenadora, Embaixadora de iniciativas de inclusão produtiva (PcD)  
 - Atuação com projetos baseados em ciência, ESG inovação e educação 
