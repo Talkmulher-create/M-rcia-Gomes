@@ -38,11 +38,12 @@ Educação emocional para professores e alunos.
 🏢 Programa Bem-Estar Corporativo  Oxente Brasil Tech
 Saúde mental, NR-01; Inteligência Emocional, bem-estar alimentação saudável e movimentos corporal consciente para desenvolvimento de performance sustentável 
 
-Equipe que colabora: Nutricionista; Engenheira Ambienta, Administrador de Turismo, Técnica Ambiental estagiária, Educador Físico, Enfermeira Obstetrícia, contador, psicóloga, psicanalista, musicoterapia e arte terapia com pintura escrita criativa. 
+Equipe que colabora: Nutricionista; Engenheira Ambienta, Gestor de Administração de Turismo, Técnica Ambiental estagiária, Educador Físico, Enfermeira Obstetrícia, contador, psicóloga, psicanalista, musicoterapia e arte terapia com pintura escrita criativa. 
 
 📚 Artigos e Publicações, produções autorais de livros e técnicas:
-05 livros 03 Co autorias 01 Produção individual autoral, 
-01- Mulherees Enfoderadas; 02- Inteligência Emocional para Mulheres, 03- Vence à Crise 04- Oxente Mulher Empreendedora Sim Sinhô 2025) 05 Mulheres que inovam e a sustentam (em andamento 2026). 
+
+05 livros 04 Co autorias 01 Produção individual autoral, 
+01- Mulherees Enfoderadas; 02- Inteligência Emocional para Mulheres, 03- Vence à Crise 04- Oxente Mulher Empreendedora Sim Sinhô 2025) 05 Mulheres que inovam sustentam (em andamento 2026).
 - PUC  Webinar, artigo científico vídeos educativos ESG sustentabilidade climática o lado humano  e o papel do conselheiro nas startups de pequeno e médio porte
 - Talk Mulher Oxente Brasil parceria com a TV Frazon Web: programa realizado ao vivo  conectando história e atividades produtivas e educativas de  oficinas artesanais com o objetivo de fortalecer o território e a identidade da mulher nordestina 
 - [Artigo PUC – Tema: Neurociência Burnout, estresse e liderança afetiva: uma análise psicossocial e comportamento em contexto organizaciona:
