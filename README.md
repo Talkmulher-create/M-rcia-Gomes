@@ -20,7 +20,7 @@ Experiência em Campo:
 
 Experiência em projetos de impacto socioeconômico com atuação em equipe multiprofissional para estudos de viabilidade e licenciamento ambiental de parques de energia eólica em 03 municípios: Saloá, Paranatama e Iati tendo Resultado de diagnóstico socioeconômico nos três municípios, contribuindo para análise territorial, desenvolvimento regional e sustentabilidade. Projetos e programas para públicos de mulheres, crianças, adolescentes, idosos e mães atípicas com acompanhamento sistêmico e articulação em rede interdisciplinares em municípios.
 
- Consultoria Oxente Brasil Tech 
+Consultoria Oxente Brasil Tech 
  
 Programas
 
@@ -62,7 +62,7 @@ Eventos
 
 - Sebrae e Senac - I e II Congressos de Educação e Inovação  (ano 2025, e 2026)
 -Bienais São Paulo, Garanhuns e Recife palestras e exposição de livros,
--Universidades: Palestras 
+-Universidades: Palestras
 
 Contato
 
