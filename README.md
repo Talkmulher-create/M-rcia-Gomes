@@ -12,7 +12,7 @@ Profissional:
 Pesquisadora e articuladora do ecossistemas de mulheres Talks mulher oxente Brasil.
 Desenvolve e lidera programas projetos voltados ao fortalecimento de mulheres empreendedoras, professores e líderes, integrando neurociência, comportamento humano, saúde mental e inteligência emocional.
 
-🧠 Pesquisa, Sustentabilidade e Inovação
+Pesquisa, Sustentabilidade e Inovação
 
 Pesquisadora na área de Gestão de Pessoas e Cultura Organizacional, com atuação vinculada à PUC, desenvolvendo estudos voltados ao comportamento humano, saúde emocional, neurociência performance e sustentabilidade nas organizações. Atuo na articulação entre ciência e prática, contribuindo com conteúdos e produções sobre mudanças climáticas, comportamento humano e impactos na USG. 
 
@@ -22,24 +22,25 @@ Experiência em projetos de impacto socioeconômico com atuação em equipe mult
 
  Consultoria Oxente Brasil Tech 
  
- 🌐 Programas
-🎤 Talk Mulher Oxente Brasil  
+Programas
+
+Talk Mulher Oxente Brasil  
 Livros escritos co-autorias para mulheres líderes, Literatura arte e cultura,  posicionamento feminino, liderança, comunicação e economia criativa sustentabilidade emocional econômica e geração de renda.
 
-🌿 EcoMulher Agro- rural Turismo Sustentável Oxente Brasil  
+EcoMulher Agro- rural Turismo Sustentável Oxente Brasil  
 Empreendedorismo rural, turismo sustentável .
 
-♿ Programa Mulher Consciente PcD Inclusiva e mulher negra Oxente Brasil  
+Programa Mulher Consciente PcD Inclusiva e mulher negra Oxente Brasil  
 Inclusão produtiva e desenvolvimento de talentos de mulheres com deficiência e negras de baixa renda.
 
-🎓 Programa de Educação  Socioemocional Oxente Brasil Tech, educação emocional para professores e alunos.
+Programa de Educação  Socioemocional Oxente Brasil Tech, educação emocional para professores e alunos.
 
-🏢 Programa Bem-Estar Corporativo  Oxente Brasil Tech
+Programa Bem-Estar Corporativo  Oxente Brasil Tech
 Saúde mental, NR-01; Inteligência Emocional, bem-estar alimentação saudável e movimentos corporal consciente para desenvolvimento de performance sustentável 
 
 Equipe que colabora: Nutricionista; Engenheira Ambienta, Gestor de Administração de Turismo, Técnica Ambiental estagiária, Educador Físico, Enfermeira Obstetrícia, contador, psicóloga, psicanalista, musicoterapia e arte terapia com pintura escrita criativa. 
 
-📚 Artigos e Publicações, produções autorais de livros e técnicas:
+Artigos e Publicações, produções autorais de livros e técnicas:
 
 05 livros 04 Co autorias 01 Produção individual autoral, 
 01- Mulherees Enfoderadas; 02- Inteligência Emocional para Mulheres, 03- Vence à Crise 04- Oxente Mulher Empreendedora Sim Sinhô 2025) 05 Mulheres que inovam sustentam (em andamento 2026).
@@ -50,21 +51,20 @@ Equipe que colabora: Nutricionista; Engenheira Ambienta, Gestor de Administraç�
 - [Estudo sobre Empreendedorismo Feminino sustentabilidade humana e econômica  a educação  
   (em andamento)
 
-🏛️ Atuação Institucional
+Atuação Institucional
 
 - Pesquisadora e atuante em Gestão de Pessoas e Cultura Organizacional, empreendedorismo feminino, sustentabilidade USG, pela PUC)  e na Oxente Brasil Tech
 - Coordenadora de programa de desenvolvimento humano e inovação social  sustentável para mulheres na Oxente Brasil Tech. 
 - Coordenadora, Embaixadora regional e nacional de iniciativas de inclusão produtiva (PcD) na Puc  
 - Atuação com projetos baseados em ciência, ESG inovação e educação na Oxente Brasil e Puc 
 
-🎤 Eventos
+Eventos
 
-- Sebrae e Sebrae  - I e II Congressos de Educação e Inovação  (ano 2025, e 2026)
+- Sebrae e Senac - I e II Congressos de Educação e Inovação  (ano 2025, e 2026)
 -Bienais São Paulo, Garanhuns e Recife palestras e exposição de livros,
 -Universidades: Palestras 
 
-
-📲 Contato
+Contato
 
 Instagram: @marciagomes.psicanalist; @talkmulher.oxente Brasil
 Linquedin: marciagomes.psicanalista 
