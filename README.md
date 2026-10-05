@@ -2,15 +2,15 @@
 
 Sobre Mim: 
 
-Sou Márcia Gomes, nordestina, nascida em Saloá – Pernambuco, com mais de 30 anos de experiência na área social, saúde pública, saúde mental e desenvolvimento humano.
+Sou Márcia Gomes, nordestina, nascida em São Paulo moro em Saloá – Pernambuco, com mais de 30 anos de experiência na área social, saúde pública, saúde mental e desenvolvimento humano.
 Minha trajetória integra prática, ciência e impacto social, com atuação direta junto a pessoas, organizações e territórios.
 
-Escritora, Pesquisadora, Assistente Social, Psicanalista Clínica, Especialista em Neurociência Comportamental, Psicologia Organizacional do Trabalho e Saúde Pública, Palestrante, Mentora de Mulheres Empreendedoras e treinamentos e consultoria para empresas. Coordenadora de equipe multidisciplinar da Oxente Brasi. Sou cientista e fundadora da startups Oxente Brasil Tech e a Talk Mulher Oxente Brasil. Hoje tenho um propósito muito forte de aproximar a ciência ao mercado, inspirando mulheres a conhecer o universo da inovação e do empreendedorismo por meio da tecnologia social, Neurociência, Cultura, Literatura e arte artesanato e música potencializando mulheres a criatividade e ao talento.
+Escritora, Pesquisadora, Assistente Social, Psicanalista Clínica, Especialista em Neurociência Comportamental, Psicologia Organizacional do Trabalho e Saúde Pública, Palestrante, Mentora de Mulheres Empreendedora, treinamentos e consultoria para empresas. Coordenadora de equipe multidisciplinar da Oxente Brasil. Sou cientista e fundadora da startups Oxente Brasil Tech e a Talk Mulher Oxente Brasil. Hoje tenho um propósito muito forte de aproximar a ciência ao mercado, inspirando mulheres a conhecer o universo da inovação e do empreendedorismo por meio da inovação, educação, tecnologia social, Neurociência, Cultura, Literatura, arte, artesanato e música potencializando mulheres a criatividade e ao talento.
 
 Profissional:
 
-Pesquisadora e articuladora de ecossistemas de desenvolvimento humano de mulheres.
-Desenvolve e lidera programas voltados ao fortalecimento de mulheres empreendedoras, professores e líderes, integrando neurociência, comportamento humano, saúde mental e inteligência emocional.
+Pesquisadora e articuladora do ecossistemas de mulheres Talks mulher oxente Brasil.
+Desenvolve e lidera programas projetos voltados ao fortalecimento de mulheres empreendedoras, professores e líderes, integrando neurociência, comportamento humano, saúde mental e inteligência emocional.
 
 🧠 Pesquisa, Sustentabilidade e Inovação
 
@@ -18,7 +18,7 @@ Pesquisadora na área de Gestão de Pessoas e Cultura Organizacional, com atuaç
 
 Experiência em Campo: 
 
-Experiência em projetos de impacto socioeconômico com atuação em equipe multiprofissional para estudos de viabilidade e licenciamento ambiental de parques de energia eólica em 03 municípios: Saloá, Paranatama e Iati. Resultado de diagnóstico socioeconômico em três municípios, contribuindo para análise territorial, desenvolvimento regional e sustentabilidade. Projetos e programas para públicos de mulheres, crianças, adolescentes, idosos e mães atípicas com acompanhamento sistêmico e articulação em rede interdisciplinares em municípios.
+Experiência em projetos de impacto socioeconômico com atuação em equipe multiprofissional para estudos de viabilidade e licenciamento ambiental de parques de energia eólica em 03 municípios: Saloá, Paranatama e Iati tendo Resultado de diagnóstico socioeconômico nos três municípios, contribuindo para análise territorial, desenvolvimento regional e sustentabilidade. Projetos e programas para públicos de mulheres, crianças, adolescentes, idosos e mães atípicas com acompanhamento sistêmico e articulação em rede interdisciplinares em municípios.
 
  Consultoria Oxente Brasil Tech 
  
@@ -32,8 +32,7 @@ Empreendedorismo rural, turismo sustentável .
 ♿ Programa Mulher Consciente PcD Inclusiva e mulher negra Oxente Brasil  
 Inclusão produtiva e desenvolvimento de talentos de mulheres com deficiência e negras de baixa renda.
 
-🎓 Programa de Educação  Socioemocional Oxente Brasil Tech 
-Educação emocional para professores e alunos.
+🎓 Programa de Educação  Socioemocional Oxente Brasil Tech, educação emocional para professores e alunos.
 
 🏢 Programa Bem-Estar Corporativo  Oxente Brasil Tech
 Saúde mental, NR-01; Inteligência Emocional, bem-estar alimentação saudável e movimentos corporal consciente para desenvolvimento de performance sustentável 
