@@ -22,8 +22,7 @@ Experiência em projetos de impacto socioeconômico com atuação em equipe mult
 
 Consultoria Oxente Brasil Tech 
  
-Programas
-
+Programas:
 Talk Mulher Oxente Brasil  
 Livros escritos co-autorias para mulheres líderes, Literatura arte e cultura,  posicionamento feminino, liderança, comunicação e economia criativa sustentabilidade emocional econômica e geração de renda.
 
@@ -33,12 +32,28 @@ Empreendedorismo rural, turismo sustentável .
 Programa Mulher Consciente PcD Inclusiva e mulher negra Oxente Brasil  
 Inclusão produtiva e desenvolvimento de talentos de mulheres com deficiência e negras de baixa renda.
 
+Programa voltado para mulheres a partir dos 30 anos, integrando saúde física, emocional e desenvolvimento pessoal.
+Temas trabalhados:
+- Autocuidado – Construção de hábitos saudáveis  
+- Amor próprio – Reconexão com a identidade  
+- Autoestima   – Fortalecimento emocional  
+- Saúde feminina – Orientação sobre corpo e ciclos  
+- Menopausa – Acolhimento e qualidade de vida  
+- Musicoterapia – Expressão emocional  
+
+Jornada da Mulher:
+1. Consciência  
+2. Reconexão  
+3. Cuidado  
+4. Fortalecimento  
+5. Expansão  
+
 Programa de Educação  Socioemocional Oxente Brasil Tech, educação emocional para professores e alunos.
 
 Programa Bem-Estar Corporativo  Oxente Brasil Tech
 Saúde mental, NR-01; Inteligência Emocional, bem-estar alimentação saudável e movimentos corporal consciente para desenvolvimento de performance sustentável 
 
-Equipe que colabora: Nutricionista; Engenheira Ambienta, Gestor de Administração de Turismo, Técnica Ambiental estagiária, Educador Físico, Enfermeira Obstetrícia, contador, psicóloga, psicanalista, musicoterapia e arte terapia com pintura escrita criativa. 
+Equipe que colabora: Nutricionista; Engenheira Ambiental, Gestor de Administração de Turismo, Técnico Ambiental estagiária, Educador Físico, Enfermeira Obstetrícia, contador, psicóloga, psicanalista, musicoterapia e arte terapia com pintura escrita criativa, psicopedagoga. 
 
 Artigos e Publicações, produções autorais de livros e técnicas:
 
@@ -64,8 +79,7 @@ Eventos
 -Bienais São Paulo, Garanhuns e Recife palestras e exposição de livros,
 -Universidades: Palestras
 
-Contato
-
+Contato:
 Instagram: @marciagomes.psicanalist; @talkmulher.oxente Brasil
 Linquedin: marciagomes.psicanalista 
 Conectando ciência, pessoas e territórios para gerar desenvolvimento humano, inovação e impacto sustentável.
